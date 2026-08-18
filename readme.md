@@ -6,7 +6,7 @@
 
 ---
 
-**Vibe-coder | Coffee addict | extreme sweaty gamer**
+**Vibe-coder | Coffee addict | extreme sweaty gamer | on github every living hour of the day**
 
 ---
 
